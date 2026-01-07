@@ -1,1 +1,1 @@
-# mindsoundxr.github.io
+# Mindsound XR
